@@ -1,4 +1,4 @@
-[sticker.webm](https://github.com/user-attachments/assets/761068d9-b2ab-4e26-afbd-b47075d5eafb)
+![katana-sword](https://github.com/user-attachments/assets/9f6b8920-ebab-4933-b18f-ab810060527e)
 
 <!--
 **HRs-void/HRs-void** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
